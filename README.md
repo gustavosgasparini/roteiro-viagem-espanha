@@ -95,3 +95,19 @@ https://www.eduardo-monica.com/new-blog/roteiro-1-dia-toledo-espanha
 
 **Noite**
 - Volta para madrid e janta em algum lugar
+
+---
+
+### INGRESSOS NECESSÁRIOS
+**MADRID**
+- Palácio Real de Madrid: Ingresso necessário
+- Catedral de la Almudena: Grátis para visitar o interior. Há uma pequena taxa se quiser subir ao mirante
+- Museu do Prado: Ingresso necessário. Você precisa comprar ingresso para visitar este famoso museu de arte.
+- Círculo de Bellas Artes: Ingresso necessário. Você precisa comprar ingresso para a entrada e para acessar a vista panorâmica da cidade.
+
+**TOLEDO**
+- Ermida del Cristo de la Luz: Ingresso necessário.
+- Monasterio de San Juan de los Reyes: Ingresso necessário.
+- Sinagoga Santa María la Blanca: Ingresso necessário.
+- Sinagoga del Tránsito: Ingresso necessário.
+- Catedral de Santa María de Toledo / Catedral Primada: Ingresso necessário.
