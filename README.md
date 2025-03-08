@@ -75,8 +75,21 @@ Noite:
 
 ### Dia 4
 
-**Manhã (08:00 - 12:00)**
+https://www.eduardo-monica.com/new-blog/roteiro-1-dia-toledo-espanha
 
-**Tarde (12:00 - 18:00)**
+**Manhã**
+- viagem para toledo
+- PUERTA DE BISAGRA
+- PUERTA DEL SOL
+- ERMIDA DEL CRISTO DE LA LUZ 
 
-**Noite (19:00 - 22:00)**
+**Tarde**
+- Almoça em toledo
+- MONASTERIO DE SAN JUAN DE LOS REYS
+- SINAGOGA SANTA MARIA LA BLANCA
+- SINAGOGA DEL TRANSITO
+- IGLESIA DE SAN ILDEFONSO (tem vista)
+- CATEDRAL DE SANTA MARIA DE TOLEDO / CATEDRAL PRIMADA
+
+**Noite**
+- Volta para madrid e janta em algum lugar
