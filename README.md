@@ -96,6 +96,15 @@ https://www.eduardo-monica.com/new-blog/roteiro-1-dia-toledo-espanha
 **Noite**
 - Volta para madrid e janta em algum lugar
 
+**Trem (AVE ou MD)**
+<br>A maneira mais rápida e confortável de chegar a Toledo é de trem. A linha de trem de alta velocidade (AVE) ou o trem mais lento (Media Distancia) conecta Madrid a Toledo.
+
+- Partida: A estação de trem em Madrid é a Estação Madrid-Puerta de Atocha.
+- Duração: A viagem leva cerca de 33 minutos (AVE) ou 1 hora (MD).
+- Frequência: Os trens saem com frequência, a cada 30 minutos a 1 hora, dependendo do horário.
+- Preço: O preço do bilhete de ida pode variar entre 13 € e 20 €, dependendo da classe e da antecedência da compra.
+- Compra de bilhetes: Você pode comprar os bilhetes diretamente no site da Renfe ou nas bilheteiras da estação.
+
 ---
 
 ### INGRESSOS NECESSÁRIOS
