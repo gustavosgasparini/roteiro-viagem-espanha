@@ -73,6 +73,8 @@ Noite:
 
 - Circulo de bellas artes (vista panorâmica da cidade) - jantar ali por perto
 
+---
+
 ### Dia 4 Bate-volta toledo
 
 https://www.eduardo-monica.com/new-blog/roteiro-1-dia-toledo-espanha
