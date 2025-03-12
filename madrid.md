@@ -87,11 +87,8 @@ https://www.eduardo-monica.com/new-blog/roteiro-1-dia-toledo-espanha
 
 **Tarde**
 - Almoça em toledo
-- MONASTERIO DE SAN JUAN DE LOS REYS
-- SINAGOGA SANTA MARIA LA BLANCA
-- SINAGOGA DEL TRANSITO
-- IGLESIA DE SAN ILDEFONSO (tem vista)
-- CATEDRAL DE SANTA MARIA DE TOLEDO / CATEDRAL PRIMADA
+- MONASTERIO DE SAN JUAN DE LOS REYS (4 euros)
+- CATEDRAL DE SANTA MARIA DE TOLEDO / CATEDRAL PRIMADA (12 euros)
 
 **Noite**
 - Volta para madrid e janta em algum lugar
@@ -109,14 +106,11 @@ https://www.eduardo-monica.com/new-blog/roteiro-1-dia-toledo-espanha
 
 ### INGRESSOS NECESSÁRIOS
 **MADRID**
-- Palácio Real de Madrid: Ingresso necessário
-- Catedral de la Almudena: Grátis para visitar o interior. Há uma pequena taxa se quiser subir ao mirante
-- Museu do Prado: Ingresso necessário. Você precisa comprar ingresso para visitar este famoso museu de arte.
-- Círculo de Bellas Artes: Ingresso necessário. Você precisa comprar ingresso para a entrada e para acessar a vista panorâmica da cidade.
+- Palácio Real de Madrid: [Ingressos - 14,77](https://tickets.patrimonionacional.es/pt/tickets/palacio-real-de-madrid?session_id=102756292&date=2025-03-13&utm_source=google&utm_medium=ttd--&utm_term=pt-BR&utm_campaign=141988_mad_maps_nav)
+- Catedral de la Almudena: Grátis para visitar o interior. Há uma pequena taxa se quiser subir ao mirante. 
+- Museu do Prado: Ingresso necessário. Você precisa comprar ingresso para visitar este famoso museu de arte. [Ingressos - 15 euros](https://entradas.museodelprado.es/)
+- Círculo de Bellas Artes: Ingresso necessário. Você precisa comprar ingresso para a entrada e para acessar a vista panorâmica da cidade. [Ingressos - 5,50 euros](https://tickets.circulobellasartes.com/pt-BR/1089/6855?s=maps&f=nav&lang=pt-BR)
 
 **TOLEDO**
-- Ermida del Cristo de la Luz: Ingresso necessário.
-- Monasterio de San Juan de los Reyes: Ingresso necessário.
-- Sinagoga Santa María la Blanca: Ingresso necessário.
-- Sinagoga del Tránsito: Ingresso necessário.
-- Catedral de Santa María de Toledo / Catedral Primada: Ingresso necessário.
+- Monasterio de San Juan de los Reyes: Ingresso necessário. [Ingressos - 4 euros](https://tickets.toledomonumental.com/es/767-toledo-monumental/4302-monasterio-de-san-juan-de-los-reyes)
+- Catedral de Santa María de Toledo / Catedral Primada: Ingresso necessário. [Ingressos - 12 euros](https://tickets.catedralprimada.es/es)
