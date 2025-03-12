@@ -1,10 +1,10 @@
 # Roteiro Madrid
 
-### Dia 0 (chegada)
+### Dia 0 (22/03) (chegada)
 
 ---
 
-### Dia 1: Explorando o Centro Histórico
+### Dia 1 (23/03): Explorando o Centro Histórico
 **Manhã:**
 
 - 9:00 - Café da manhã: Comece o dia em uma das tradicionais cafeterias madrilenhas. O **Chocolatería San Ginés** é famoso pelo seu churros com chocolate e fica próximo à Puerta del Sol.
@@ -33,7 +33,7 @@ Noite:
 
 ---
 
-### Dia 2: Museus e Cultura
+### Dia 2 (24/03): Museus e Cultura
 
 **Manhã:**
 
@@ -55,7 +55,7 @@ Noite:
  
 ----
 
-### Dia 3: Passeio compras e praças
+### Dia 3 (25/03): Passeio compras e praças
 
 **Manhã**
 
@@ -67,7 +67,7 @@ Noite:
 
 - plaza de españa e monumento a cervantes
 
-- templo de debod
+- templo de debod para ver o por do sol
 
 **Noite (19:00 - 22:00)**
 
@@ -75,7 +75,7 @@ Noite:
 
 ---
 
-### Dia 4 Bate-volta toledo
+### Dia 4 (26/03) - Bate-volta toledo
 
 https://www.eduardo-monica.com/new-blog/roteiro-1-dia-toledo-espanha
 
