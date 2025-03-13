@@ -81,8 +81,8 @@
 
 ### INGRESSOS NECESSÁRIOS
 **LISBOA**
-- Lisboa Card: [54 euros](https://www.getyourguide.com/lisboa-l42/lisboa-card-24h-48h-72h-t225711?ranking_uuid=c7872057-d435-4e8b-bfb0-fa518247e468&lang=pt&_pc=1,4&date_from=2025-03-27)
-- Castelo de São Jorge: Ingressos - [15 euros](https://castelo-sao-jorge.byblueticket.pt/Evento?IdEvento=4971)
+- Lisboa Card: [54 euros](https://www.getyourguide.com/lisboa-l42/lisboa-card-24h-48h-72h-t225711?ranking_uuid=c7872057-d435-4e8b-bfb0-fa518247e468&lang=pt&_pc=1,4&date_from=2025-03-27)  ✅
+- Castelo de São Jorge: Ingressos - [15 euros](https://castelo-sao-jorge.byblueticket.pt/Evento?IdEvento=4971) ✅
 
 **SINTRA**
 - Palácio Nacional da Pena: Ingressos [17 euros](https://bilheteira.parquesdesintra.pt/evento/parque-e-palacio-nacional-da-pena/263/pt)
