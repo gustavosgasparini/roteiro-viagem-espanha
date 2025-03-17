@@ -85,6 +85,6 @@
 - Castelo de São Jorge: Ingressos - [15 euros](https://castelo-sao-jorge.byblueticket.pt/Evento?IdEvento=4971) ✅
 
 **SINTRA**
-- Palácio Nacional da Pena: Ingressos [17 euros](https://bilheteira.parquesdesintra.pt/evento/parque-e-palacio-nacional-da-pena/263/pt)
-- Castelo dos Mouros: Ingressos [10,20 euros](https://bilheteira.parquesdesintra.pt/evento/castelo-dos-mouros/243/pt)
+- Palácio Nacional da Pena: Ingressos [17 euros](https://bilheteira.parquesdesintra.pt/evento/parque-e-palacio-nacional-da-pena/263/pt) ✅
+- Castelo dos Mouros: Ingressos [10,20 euros](https://bilheteira.parquesdesintra.pt/evento/castelo-dos-mouros/243/pt) ✅
 - Quinta da Regaleira:  Ingressos [15 euros](https://regaleira.byblueticket.pt/Evento?IdEvento=12766&DtEscolhida=03%2F30%2F2025%2000%3A00%3A00)
