@@ -67,7 +67,7 @@
 
 **Tarde**
 
-- Visite o **Palácio Nacional da Pena** pegar o onibus 434 para subir até o castelo, ao sair da estação de trem (Circuito da Pena)
+- 10h30: Visite o **Palácio Nacional da Pena** pegar o onibus 434 para subir até o castelo, ao sair da estação de trem (Circuito da Pena)
 - **o Castelo dos Mouros**
 - **Quinta da Regaleira**
 - No final da tarde siga para Cascais, uma vila de pescadores charmosa, aproveite o por do sol na boca do inferno.
